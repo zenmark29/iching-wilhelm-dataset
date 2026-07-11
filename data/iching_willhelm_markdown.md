@@ -993,7 +993,7 @@ When ribbon grass is pulled up, the sod comes with it.
 Each according to his kind.
 Perseverance brings good fortune and success.
 
-The text is almost the same as that of the first line of the preceding hexagram, but with a contrary meaning. In the latter a man is drawing another along with him on the road to an official career; here a man is drawing another with him into retirement form public life. This is why the text says here, "Perseverance brings good fortune and success," and not "Undertakings bring good fortune." If it becomes impossible to make our influence count, it is only by retirement that we spare ourselves humiliation. Success in a higher sense can be ours, because we know how to safeguard the value of our personalities.
+The text is almost the same as that of the first line of the preceding hexagram, but with a contrary meaning. In the latter a man is drawing another along with him on the road to an official career; here a man is drawing another with him into retirement from public life. This is why the text says here, "Perseverance brings good fortune and success," and not "Undertakings bring good fortune." If it becomes impossible to make our influence count, it is only by retirement that we spare ourselves humiliation. Success in a higher sense can be ours, because we know how to safeguard the value of our personalities.
 
 Six in the second place means:
 
